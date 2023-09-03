@@ -1,3 +1,43 @@
+- Detective Gunther Pendragon is sitting in a cafe reading a newspaper. The person behind the bar compliments him on his choice in literature. He says it's the only thing that keeps him sane.
+- This paper is dated july 4th, 2002, the day his wife died in a tragic pirate accident
+- The barista asks if the comic was any good and he says he remembers it fondly, but he can't read much anymore.
+- The barista asks what that means and he says words just don't look so good these days.
+	- After my wife died and I read her obituary walls of text just lost all meaning. Papers and pasta and pirates all just merged into one big meatball of misery in my mind. The letters I wrote to her at sea might as well have washed away with the tide the night she left for margarita-ville.
+- The barista smiles and walks away, but the man sitting next to him responds
+	- Sir I couldn't help but overhear and notice your badge (his wallet fell out of his coat, laying open on the floor). I wouldn't have said anything, but you just look so familiar. You wouldn't happen to be related to the commissioner would you?
+- He takes a sip of his coffee and then his milkshake. He picks up his wallet off the floor and puts it in his jacket
+	- Yeah I know him, he's my twin brother. He's the one who retaught me how to read after my wife was keelhauled in the Caribbean. I owe that man my essence as a human being.
+- The barista interjects
+	- I didn't know there were margarita-villes outside of the USA
+- The other man laughs and says
+	- There's only one outside of america and it's on the canadian boarder right by Niagara falls. The commissioner said she was on her way to the margaritaville in the florida keys when she was shanghaied in a Shell gas station bathroom just minutes away from the first margaritaville location.
+- Gun drinks his milkshake and then his coffee and then his milkshake.
+	- God I hate coffee. Since you clearly know me, why shouldn't I kill you where you sit.
+- He takes a bunch of salt and pours it on his milkshake, swirls and drinks it.
+- The other man politely takes his coffee, takes out a tablespoon from his wallet and adds 3 tbs of sugar.
+	- I'm the sole leader of the harby 3. I owe your brother as much as you if not more. Ifsofacto I owe you as well. So you'll forgive me for taking this fine cup of joe off your hands, and maybe show me some respect while I drink it without a salty milkshake chaser.
+- Gun pounds the table and looks around
+	- God fucking damn it. Where are your other 2 clowns? The goddamn harbinger squad just my luck. Leave it to him to fund your stupid ass garggle of dicks. Didn't you 3 just recently cause an elderly lady to have a heart attack after getting her mugged 3 times in the middle of the day? How do you even, aw never-mind. I'm gonna leave.
+- He gets up to leave and starts walking but Kublai stops him
+	- Hey detective, you still can't read can you.
+- He stops and sits down
+	- You saw my paper
+- Kublai says
+	- No, but now that you mention it that paper is dated july 4th 2002, so what, you just carry it around to make it look like you can read? All high and mighty huh. Bet you take dicks bigger than you make one. And you make one just fine detective let me tell you.
+- He tries to reason with Kublai
+	- Look here goddamn it. I've gone through some shit alright. First the bureau and now you fuck this shit buddy I'm done. Go ahead and tell the world I won't bargain with scum like you.
+- Kublai drinks his coffee then spills it over the counter while Gun's talking. After he's done Mikey stands up from behind the bar wet and in a coffee stained shirt and says the following while drying himself off:
+	- Your wife loved you Gun. Why take out your resentment for yourself on the world. She died knowing she had something special and that even though the world's a cold hard place, the soft tender moments that bind us to our other halves are the only ones worth reflection. They supersede the wrongdoings of pirates, the impurity and callousness of words on paper. So regardless of if she made it to margs that fateful Sunday or not, she loved you and would want you to keep sinkin em and reading the funnies in her memory. Don't be so cynical. You need to love this world more than you loathe it in order to do your job effectively. Maybe you should come back to our place, we can lend you some weapons and maybe help you take your revenge.
+- The detective is stunned. 
+	- Touching sentiment. Here's another thought. My wife filed for divorce and fled for the flordia keys margaritaville, and I don't give 2 jimmy buffets what some alarmist fatheaded donkey brains have to say about my perspective on life
+- Gop sitting in the corner, holding up a blank piece of loose leaf paper in a fake moustache (could even be over his real moustache) hears the escalated argument. He sees the man reach into his jacket and reacts swiftly, charging towards them.
+	- HE'S GOTTA GUN HE'S GOTTA GUN
+- Mikey takes Gun's hand and Kublai takes the gun. Gop knows a cool move where you karate chop a part on someone's neck and they knock out. He does it.
+	- All in a good day's work. 
+- They carry Gun to his car where they take his keys and drive it to their home and bring him inside. 
+
+HARBINGER SQUAD : MURDER ALERT title plays
+
 - THE HARBINGER SQUAD IS SITTING AROUND AWAITING A CALL FROM THE COMMISSIONER
 - CUTS TO THE COMMISSIONER HAL SLOWLY CHOKING TO DEATH ON A PLASTIC BAG IN HIS THROAT
 - CUTS BACK TO THEM SITTING
@@ -60,17 +100,18 @@ FLASHBACK
 - HE RUNS TO HIDE UPSTAIRS OR DOWNSTAIRS
 - HE REVIEWS THE POSTCARD, AND SEES A PICTURE ON IT DEPICTING THE MAN HE SPOKE TO THE HARBS ABOUT. THERE'S A BRIEF DESCRIPTION OF HOW HE'D DIE ON IT, STATING THAT HE KNEW THIS WOULD BE HIS END, BUT THAT IT WAS NOT THEIR FAULT. HE'D NEED TO WORK WITH THEM TO FIND THE CURE TO DEATH.
 
+**INFODUMP, NOT CHRONOLOGICAL
 EVENTUALLY HAL IS RESURRECTED AND STATES THAT THERE'S A HUGE PROBLEM, 
 THAT JESUS WAS MEANT TO BE RESURRECTED, BUT INSTEAD GOD RESURRECTED HIM.
 
-A DISCUSSION HAPPENS AND IT'S REVEALED THAT HAL MET GOD, AND THROUGH DUMB LUCK LOOKED A LOT LIKE JESUS BUT WHITE, BUT GOD WAS COLOR BLIND 
-- CAN VISUALLY DISPLAY THIS BY HAVING THE CAPSULES ON THE SPACESHIP HAVE NAMEPLATES, THE BUTTONS TO FREE JESUS AND HAL WERE JUST NEXT TO EACHOTHER.
+**A DISCUSSION HAPPENS AND IT'S REVEALED THAT HAL MET GOD, AND THROUGH DUMB LUCK LOOKED A LOT LIKE JESUS BUT WHITE, BUT GOD WAS COLOR BLIND 
+-** **CAN VISUALLY DISPLAY THIS BY HAVING THE CAPSULES ON THE SPACESHIP HAVE NAMEPLATES, THE BUTTONS TO FREE JESUS AND HAL WERE JUST NEXT TO EACHOTHER.
 
-WHEN GOD FAILED A QUICKTIME EVENT, THERE WAS A BUG THAT IT'D RESPAWN THE PERSON 1 POD OVER INSTEAD OF RESTARTING. GOD HAD NEVER FAILED A QUICKTIME EVENT SO HE DIDN'T KNOW THIS, AND INSTEAD ASSUMED THAT IT WORKED ANYWAYS.
+**WHEN GOD FAILED A QUICKTIME EVENT, THERE WAS A BUG THAT IT'D RESPAWN THE PERSON 1 POD OVER INSTEAD OF RESTARTING. GOD HAD NEVER FAILED A QUICKTIME EVENT SO HE DIDN'T KNOW THIS, AND INSTEAD ASSUMED THAT IT WORKED ANYWAYS.
 
-SIDENOTE - GOD'S SPACESHIP IS CALLED THE PAD OF GOD, OR THE POG. COULD ALSO BE CALLED GOD'S PAD, GOP IS THE ONLY ONE WHO CALLS IT THIS, AND REFERS TO IT AS THE GOP.
+**SIDENOTE - GOD'S SPACESHIP IS CALLED THE PAD OF GOD, OR THE POG. COULD ALSO BE CALLED GOD'S PAD, GOP IS THE ONLY ONE WHO CALLS IT THIS, AND REFERS TO IT AS THE GOP.
 
-BEFORE HAL IS RESURRECTED, AFTER THE DETECTIVE READS THE POSTCARD
+AFTER THE DETECTIVE READS THE POSTCARD
 - GUN REALIZES HE'LL NEED THE HELP OF THE HARBINGERS
 - HE REMEMBERS THE HARBINGER HOUSE HAS WEAPONS HIDDEN ALL OVER
 - HE PULLS A FLAMETHROWER OUT OF A PILLOW AND PROCEEDS DOWNSTAIRS, WHERE THE HARBINGERS ARE SITTING EXACTLY WHERE THEY WERE BEFORE
